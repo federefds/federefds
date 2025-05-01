@@ -2,7 +2,7 @@ zxc62345- 👋 Hi, I’m @federefds
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ss
 - 💞️ I’m looking to collaborate on ...wer6963sdf313159596999+-dfb526jm9696ujjgrehjm
-- 📫 How to reach me ...rtg6969xcvcdss5415yhtcxvcxvvcxhmgdgfdfggfdwqeqwqqqqqqqeqwqwq    qqqqQQQQQQQQQQQwww
+- 📫 How to reach me ...rtg6969xcvcdss5415yhtcxvcxvvcxhmgdgfdfggfdwqeqwqqqqqqqeqwqwq    qqqqQQQQQQQQQQQwwwvbvvvv
 - 😄 Pronouns: ...sdssdf454jglza8559999hjmhjzxvbxc023845963361trgljkdsfds88gcvwqthrtthradsasgtrfff
 - ⚡ Fun fact: ...sfdjklqwrq26fdsfsghnghn
 123asdsg87sdf53469+3xcvxcvewxx59sfdsd
