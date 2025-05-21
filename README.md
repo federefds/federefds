@@ -1,6 +1,6 @@
 tyjytjjytzxc62345- 👋 Hi, I’m @federefds585526
-- 👀 I’m interested in ...thyhty
-- 🌱 I’m currently learning ...sshyt
+- 👀 I’m interested in ...thyhtydgdg
+- 🌱 I’m currently learning ...sshytdgfgdgdd
 - 💞️ I’m looking to collaborate on ...wer6963sdf313159596999+-dfb526jm9696ujjgrehjmghnhgnghyth
 - 📫 How to reach me ...rtg6969xcvcdss5415yhtcxvcxvvcxhmgdgfdfggfdwqeqwqqqqqqqeqwqwq    qqqqQQQQQQQQQQQwwwvbvvvvgdgdfgfdddsdsdds
 - 😄 Pronouns: ...sdssdf454jglza8559999hjmhjzxvbxc023845963361trgljkdsfds88gcvwqthrtthradsasgtrffftgrfdd93669+232
