@@ -3,8 +3,8 @@ tyjytjjytzxc62345- 👋 Hi, I’m @federefds585526
 - 🌱 I’m currently learning ...sshytdgfgdgdd
 - 💞️ I’m looking to collaborate on ...wer6963sdf313159596999+-dfb526jm9696ujjgrehjmghnhgnghythghjghjergreggre
 - 📫 How to reach me ...rtg6969xcvcdss5415yhtcxvcxvvcxhmgdgfdfggfdwqeqwqqqqqqqeqwqwq    qqqqQQQQQQQQQQQwwwvbvvvvgdgdfgfdddsdsddsghjrgere
-- 😄 Pronouns: ...sdssdf454jglza8559999hjmhjzxvbxc023845963361trgljkdsfds88gcvwqthrtthradsasgtrffftgrfdd93669+232hkjkhjhkjtreettretre
-- ⚡ Fun fact: ...sfdjklqwrq26fdsfsghnghn
+- 😄 Pronouns: ...sdssdf454jglza8559999hjmhjzxvbxc023845963361trgljkdsfds88gcvwqthrtthradsasgtrffftgrfdd93669+232hkjkhjhkjcvbbtreettretre
+- ⚡ Fun fact: ...sfdjklqwrq26fdsfsghnghncvbvcbv
 123asdsg87sdf53469+3xcvxcvewxx59sfdsdhjkhkjhj
   sdfdsfdsfdsfhdfdfhhdfhryhtrhtrbgvc  vvhk
 <!---456115426hhggfdgfdfg
