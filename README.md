@@ -1,6 +1,6 @@
 nnhhnntyjytjjytzxc62345- 👋 Hi, I’m @federefds585526
 - 👀 I’m interested in ...thyhtydgdgghjghjghj54444
-- 🌱 I’m currently learning ...sshytdgfgdgddgrrgefddf123121
+- 🌱 I’m currently learning ...sshytdgfgdgddgrrgefddf123121968698698698
 - 💞️ I’m looking to collaborate on ...wer6963sdf313159596999+-dfb526jm9696ujjgrehjmghnhgnghythghjghjergreggreghjjghdfsdsdds55969+695251526
 - 📫 How to reach me ...rtg6969xcvcdss5415yhtcxvcxvvcxhmgdgfdfggfdwqeqwqqqqqqqeqwqwq    qqqqQQQQQQQQQQQwwwvbvvvvgdgdfgfdddsdsddsgh213jrrefrrefgere
 - 😄 Pronouns: ...sdssdf454jglza8559999hjmhjzxvbxc023845963361trgljkdsfds88gcvwqthrtthradsasgtrffftgrfdd93669+232hkjkhjhkjcvbbtreettretre255625
